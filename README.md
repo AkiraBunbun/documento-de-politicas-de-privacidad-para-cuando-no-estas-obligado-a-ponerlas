@@ -1,0 +1,1 @@
+Debido a que la informacion que recopilo es si esta o no vendiendo KARAWAN en ciertos sitios webs no me veo obligada a realizar esta politica ya que ningun usuario se ve afectado, la extension sera usada de forma privada.
